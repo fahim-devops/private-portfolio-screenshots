@@ -1,1 +1,1 @@
-# private-portfolio-screenshots
+Due to data privacy and the importance of certain configurations, I am unable to make the files or content public. This repository includes some of my private portfolio screenshots, on which I have already worked or am currently working
